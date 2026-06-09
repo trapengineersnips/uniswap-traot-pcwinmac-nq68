@@ -1,4 +1,4 @@
-# 
+# Último uniswap trading bot scripts para Mac OS | Élite uniswap trading bot scripts para PC Windows. Con detección de ruptura y oyentes de eventos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
